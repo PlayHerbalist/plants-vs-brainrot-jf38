@@ -1,4 +1,4 @@
-
+plants vs brainrots smart Scripts offers the most advanced plants vs brainrots Script, with speed and auto-sell. Perfect for dominating any match.
 
 
 
